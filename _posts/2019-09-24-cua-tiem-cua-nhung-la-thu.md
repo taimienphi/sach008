@@ -1,0 +1,27 @@
+---
+author: Yasushi Kitagawa
+categories:
+- Tiểu Thuyết Phương Tây
+description: Cửa Tiệm Của Những Lá Thư
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/5517
+- info: mobi
+  url: https://sachvui.com/download/mobi/5518
+- info: pdf
+  url: https://sachvui.com/download/pdf/5519
+image: https://sachvui.com/cover/2018/cua-tiem-cua-nhung-la-thu.jpg
+layout: post
+permalink: /cua-tiem-cua-nhung-la-thu.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Cửa Tiệm Của Những Lá Thư ebook
+- Cửa Tiệm Của Những Lá Thư pdf
+thumbnail_url: https://sachvui.com/cover/2018/cua-tiem-cua-nhung-la-thu.jpg
+title: Cửa Tiệm Của Những Lá Thư
+---
+
+ <div class="item-desc text-justify"> <p>Cửa tiệm của những lá thư – Nơi gửi gắm ước mơ và niềm tin vào tương lai.</p><p>Tiếp nối thành công từ hai cuốn tiểu thuyết trước là "<em>Cuộc hẹn bình min"”</em> và "<em>Nếu ngày mai không bao giờ đến"</em>, ngòi bút của nhà văn <em>Yasushi Kitagawa</em> đã để lại một dấu ấn rất lớn trong lòng bạn đọc khi viết về những điều gần gũi, chân thực nhưng không kém phần sâu sắc của xã hội Nhật Bản đầy bất ổn với những khuôn phép gò bó.  Với lần trở lại này, tác giả Yasushi đồng thời cũng là một thầy giáo được yêu mến tiếp tục chinh phục độc giả qua cuốn sách thứ ba "<em>Cửa tiệm của những lá thư"</em> – tác phẩm đạt doanh thu vượt 1 triệu bản in gây sốt tại xứ sở mặt trời mọc.</p><p><em>Bước đi đầu tiên, ai cũng cần có dũng khí. Nhưng nếu, bạn có hứng thú muốn làm những điều tuyệt vời trong đời mình, mời hãy thử sử dụng dịch vụ của Thư quán một lần xem.</em></p><p>Những bước chân vô thức đưa cậu chàng Nishiyama Ryouta lạc vào một tiệm cà phê cách ga tàu điện 5 phút đi bộ, một nơi chốn có rất ít người qua lại. Nhìn bên ngoài tưởng chừng như đây chỉ là một tiệm cà phê bình thường, nhưng bên trong quán còn sở hữu  một không gian sách kì vĩ với những dịch vụ kì lạ khiến bất kì ai cũng cảm thấy hứng thú. Cũng trong giây phút ấy, cậu có dịp được gặp gỡ và tiếp xúc với rất nhiều người lạ mà một trong số họ có người về sau đã khiến cuộc đời cậu bước sang một trang mới.</p><p><em>Con người không hề sống và cho rằng bản thân thế đã là hoàn hảo. Mọi người đều mang theo nhiều nỗi lo lắng và vấn đề riêng, va chạm với những người khác, tổn thương và làm kẻ khác bị tổn thương rồi mới trở nên trưởng thành hơn.</em></p><p>Ngay khi từ khi còn ngồi trên ghế nhà trường, chúng ta luôn mơ ước về viễn cảnh tìm được một công việc phù hợp với sở thích và năng lực của bản thân. Nhưng theo thời gian, những ước mơ và khát khao ngày ấy dần phai nhạt, bị hiện thực xâm chiếm khiến con người ta đôi lúc cảm thấy hoang mang, không biết phải đi hướng nào cho đúng, làm thế nào để đạt được điều mình mong muốn. Những tháng ngày trượt dài trong lo lắng, chênh vênh về thứ gọi là tương lai an ổn. Cần lắm một người đi trước có kinh nghiệm để định hướng và dìu dắt ta bước qua những  khó khăn trước mắt. Và như  sự sắp đặt tình cờ của số phận, Ryouta đã gặp được Quán chủ của tiệm Thư lạc – một người vô cùng bí ẩn như một dấu chấm hỏi cần lời giải,  luôn xuất hiện qua câu chữ tràn đầy năng lượng trong những lá thư trao đổi giữa hai người , nhưng đem lại cho Ryouta  bước ngoặt lớn trong việc nhận thức được giá trị của bản thân và giải đáp những khúc mắc trong lòng cậu về quá trình tìm kiếm việc làm.</p><p><em>Những người không bao giờ ngã không có nghĩa là họ mạnh, những người ngã nhưng vẫn đứng lên mới thực sự mạnh mẽ.</em></p><p><em>Bây giờ, điều diễn ra với mình là may mắn hay bất hạnh, ta không thể phán đoán ngay lập tức. Có thể lúc đó ta coi là điều may mắn, nó lại có thể trở thành xiềng xích ràng lại cuộc đời mình. Nhưng có thể điều ta xem là không may lại giúp rất nhiều người nắm được thành công cũng là sự thật.</em></p><p><em>Mặt khác, biến "khủng hoảng " thành "cơ hội" là điều cần thiết đối với rất nhiều người thành công.</em></p><p>Như được truyền lửa, Ryouta đã có những bước tiến mới khả quan trong công cuộc tìm kiếm việc làm, không còn cảm thấy bỡ ngỡ hoặc thất vọng khi nhận được thư từ chối từ nhà tuyển dụng nữa. Cậu trở nên dạn dĩ, nỗ lực hơn cho giấc mơ đời mình. Mười lá thư được trao đi như gửi gắm tất cả hoài bão của cậu và quán chủ bí ẩn là người chắp cho nó thêm đôi cánh để tự tin bay vút lên bầu trời cao rộng. Qua những bài học bổ ích  được lĩnh hội từ những bức thư tay của Quán chủ, dần dần Ryouta khao khát muốn có một cuộc gặp gỡ ngoài đời thực với người mà cậu tôn sùng và quý mến. Nhưng đúng là cuộc đời vốn không ai biết trước được điều gì, luôn có những bất ngờ xảy đến khiến chúng ta vỡ òa trong bất ngờ.</p><p><em>Tất cả mọi người đều nhờ một cơ hội nào đó mà bắt đầu bước trên con đường thành công.</em></p><p>Cuốn sách này không chỉ dừng lại ở những câu chuyện đời thường, ẩn chứa bên trong là một nội lực to lớn thúc đẩy con người sống hết mình hơn, có trách nhiệm hơn với bản thân và nhất là phải đặt niềm tin tuyệt đối vào những điều mình đang theo đuổi. Rồi một ngày bạn sẽ trở thành một người tốt đẹp như trong chính những giấc mơ của mình và giúp những người khác có một cuộc đời tốt đẹp hơn.</p><p><strong>Ebook do bạn <a href="/cdn-cgi/l/email-protection" class="__cf_email__" data-cfemail="7a0e0c13141249484b3a1d171b131654191517">[email protected]</a> chia sẻ.</strong></p> </div>
